@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ecksii
 - 👀 I’m interested in...a lot! Have about 5 unfinished projects on the go...time to start a new one! 😍 
-- 🌱 Likely urrently procrastinating
+- 🌱 Likely currently procrastinating
 - 💞️ I’m looking to collaborate on any ideas you might have!
 - 📫 discord @ecksi_11
 - ⚡ Fun fact: I lose my phone daily
