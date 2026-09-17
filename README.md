@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ecksii
+- 👋 Hi, I’m @ecksii / Lexi
 - 👀 I’m interested in...a lot! Have about 5 unfinished projects on the go...time to start a new one! 😍 
 - 🌱 Likely currently procrastinating
 - 💞️ I’m looking to collaborate on any ideas you might have!
